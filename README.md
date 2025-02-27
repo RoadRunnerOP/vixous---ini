@@ -1,1 +1,1 @@
-# This is vixous ini the only ini aloud on vixous.
+# Dm Fast.gg for any questions.
